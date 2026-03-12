@@ -1,1 +1,1 @@
-https://github.com/TopMob/slozhno-sosredotochitsya-ad
+https://github.com/F0dex/slozhno-sosredotochitsya-ad
